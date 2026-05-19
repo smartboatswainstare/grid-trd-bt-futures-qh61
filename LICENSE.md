@@ -1,4 +1,4 @@
-# 
+# elite bot de trading de Binance Futures ejecutor es el mejor bot de trading de Binance Futures ejecutor con trailing-stop y gestión de riesgos. Seguro, confiable y optimizado para
 
 
 
